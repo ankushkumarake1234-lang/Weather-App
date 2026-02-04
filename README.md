@@ -215,7 +215,7 @@ Created with ❤️ by Ankush Kumar
 
 For issues or questions:
 - Open an issue on GitHub
-- Contact: your.email@example.com
+- Contact: ankushkumarke1234@gamil.com
 
 ---
 
